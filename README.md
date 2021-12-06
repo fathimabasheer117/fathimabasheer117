@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fathimabasheer117
 - 👀 I’m interested in hangingout,watching movies,listening music
-- 🌱 I’m currently learning master of computer application(MCA)
+- 🌱 I’m currently studying for master of computer application(MCA)
 - 📫 How to reach me fathimabasheer11@gmail.com
 
 <!---
