@@ -1,6 +1,7 @@
-- 👋 Hi, I’m @fathimabasheer117
+- 👋 Hi, I’m @fathimabasheer
 - 👀 I’m interested in hangingout,watching movies,listening music
-- 🌱 I’m currently studying for master of computer application(MCA)
+- 💻 I’m a bca Graduate
+- 👨‍🎓🎉📝 I’m currently pursuing for master of computer application(MCA) from TKM college of engineering.
 - 📫 How to reach me fathimabasheer11@gmail.com
 
 <!---
